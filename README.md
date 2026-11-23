@@ -2,7 +2,7 @@
 
 > **一句话结论：四档月付从 200G 覆盖到 1200G，家庭共享还附带 EMBY**
 >
-> 👉 **[官网注册](https://wuguijiasu.com/#/login?code=dd6NtGYo)** · 先试 18 元 Mini；家庭多人高频使用再换 38 元 Pro。
+> 👉 **[官网注册](https://wuguijiasu.com/#/login?code=QNAZaT1X)** · 先试 18 元 Mini；家庭多人高频使用再换 38 元 Pro。
 
 ### 这些家庭更合适：
 
@@ -53,7 +53,7 @@
 
 ## 从这里注册
 
-👉 **[官网注册](https://wuguijiasu.com/#/login?code=dd6NtGYo)** · 先试 18 元 Mini；家庭多人高频使用再换 38 元 Pro。
+👉 **[官网注册](https://wuguijiasu.com/#/login?code=QNAZaT1X)** · 先试 18 元 Mini；家庭多人高频使用再换 38 元 Pro。
 
 *本文含推广链接；通过本文入口注册或购买，本站可能获得佣金。*
 
